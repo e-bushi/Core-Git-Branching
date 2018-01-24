@@ -25,7 +25,10 @@ He took a tentative step through the door and followed the stone path overgrown 
 
 Vegeta met the Unicorn King who granted him magic powers.
 
-Sometimes there are happy endings other there aren't. Fortunately this time everyone is happy.
+
+Sometimes there are happy endings other there aren't. Fortunately this time everyone is happy I guess.
+The War monger takes over and destroys everything.
+
 The end.
 
 ## Cast
@@ -34,3 +37,4 @@ The end.
 * Unicorn King: Alan
 * Zookeeper: Braus
 * Friendly Koala: Mike
+* War Monger: Broly
