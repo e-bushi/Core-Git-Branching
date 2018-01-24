@@ -24,6 +24,9 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Vegeta met the Unicorn King who granted him magic powers.
+
+War monger takes over and destroys everything.
+
 The end.
 
 ## Cast
@@ -32,3 +35,4 @@ The end.
 * Unicorn King: Alan
 * Zookeeper: Braus
 * Friendly Koala: Mike
+* War Monger: Broly
