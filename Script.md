@@ -24,6 +24,8 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Vegeta met the Unicorn King who granted him magic powers.
+
+Sometimes there are happy endings other there aren't. Fortunately this time everyone is happy.
 The end.
 
 ## Cast
